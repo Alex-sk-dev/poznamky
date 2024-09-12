@@ -1,2 +1,4 @@
 # poznamky
 yah
+vsetko ig
+👍
